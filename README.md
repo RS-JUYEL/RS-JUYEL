@@ -1,4 +1,4 @@
-<h1 align="center">𝐌𝐃 𝐀𝐁𝐔 𝐒𝐈𝐘𝐀𝐌</h1>
+<h1 align="center">𝐉𝐔𝐘𝐄𝐋</h1>
 
 - contact me **md0199355@gmail.com**
 
